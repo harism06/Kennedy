@@ -1,4 +1,6 @@
-# A Tiny Ripple of Hope by Robert Kennedy
+# A Tiny Ripple of Hope by Ted Kennedy
+
+*Ted Kennedy's Eulogy for his brother Robert F. Kennedy.*
 
 There is discrimination in this world and slavery and slaughter and starvation. Governments repress their people; millions are trapped in poverty while the nation grows rich and wealth is lavished on armaments everywhere. These are differing evils, but they are the common works of man. They reflect the imperfection of human justice, the inadequacy of human compassion, our lack of sensibility towards the suffering of our fellows. But we can perhaps remember -- even if only for a time -- that those who live with us are our brothers; that they share with us the same short moment of life; that they seek -- as we do -- nothing but the chance to live out their lives in purpose and happiness, winning what satisfaction and fulfillment they can.
 
